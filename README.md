@@ -1,1 +1,1 @@
-<p align='center'> https://webidog.straw.page </p>
+<p align='center'> https://webidog.straw.page </br> https://webidog.atabook.org  </p>
